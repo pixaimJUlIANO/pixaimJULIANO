@@ -1,16 +1,15 @@
-## Hi there 👋
+## Só salvinho truta  🤙
 
-<!--
-**pixaimJUlIANO/pixaimJULIANO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**pixaimJUlIANO/pixaimJULIANO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profiled
 
-Here are some ideas to get you started:
+Esse é o perfil do JUliano q é mt lindo
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Estou estudando na E.E Joanna Sposito
+
+Entre em contato comigo em 📱4002-8922
+
+
+
+
+![](https://media1.tenor.com/m/PKKCAakpBZIAAAAC/neyney-neymar.gif )
+https://media1.tenor.com/m/PKKCAakpBZIAAAAC/neyney-neymar.gif
