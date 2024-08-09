@@ -2,7 +2,7 @@
 
 **pixaimJUlIANO/pixaimJULIANO** 
 
-Esse é o perfil do JUliano q é mt lindo
+Esse é o perfil do JUliANO q é mt lindo
 
 Estou estudando na E.E Joanna Sposito
 
